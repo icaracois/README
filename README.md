@@ -8,7 +8,7 @@ This is meant to help you understand me better and set expectations about what y
 I ask you to hold me accountable to my promises, and to call out anything that might be missing from this document. Without your guidance, I will not be able to improve as a manager.
 
 ## Who am I?
-I got my first job at the age of 20 in an agency as a one-woman show, being responsible for branding, graphic design and web design with a pretty shitty paycheck. Since that time or in the last 14 years I’ve been a self-taught designer focusing on the fields of user experience, user interface, and product design. I have been lucky enough to spend the latest years passionately designing with awesome people at awesome companies like Devscope, Betfair, Blip, Tigerspike, and Net-A-Porter. 
+I got my first job at the age of 20 in an agency as a design team of one, being responsible for branding, graphic design and web design with a pretty shitty paycheck. Since that time or in the last 14 years I’ve been a self-taught designer focusing on the fields of user experience, user interface, and product design. I have been lucky enough to spend the latest years passionately designing with awesome people at awesome companies like Devscope, Betfair, Blip, Tigerspike, and Net-A-Porter. 
 
 In the last couple of years, I have been developing another passion for working processes and design teams. As soon as I had an opportunity to develop and contribute to making a design team more efficient and happier I grabbed it and made it happen. That was a key moment in my career because I discovered that more than my passion for UX, I am much more passionate about creating the environment for other designers to be the best they can be!
 
