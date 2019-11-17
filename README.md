@@ -13,7 +13,7 @@ I got my first job at the age of 20 in an agency as a design team of one, being 
 In the last couple of years, I have been developing another passion for working processes and design teams. As soon as I had an opportunity to develop and contribute to making a design team more efficient and happier I grabbed it and made it happen. That was a key moment in my career because I discovered that more than my passion for UX, I am much more passionate about creating the environment for other designers to be the best they can be!
 
 ## My Job
-As a Product Design Team Lead, I am here at Prozis primarily to do five things:
+As a Product Design Manager, I am here at Prozis primarily to do five things:
 1. Building the team - Attract and retain world-class talent (that's you)
 2. Managing the team - Make sure that you and our team is successful, happy, and working on the things that are most important to help our customers and improve our product and our business.
 3. Operationalize design - Put a process in place, tools and workflows that allow the team to be more productive.
